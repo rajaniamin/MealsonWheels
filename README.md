@@ -1,4 +1,4 @@
-# MEELS ON WHEELS
+# MEALS ON WHEELS
 
  
 <p align="center">
